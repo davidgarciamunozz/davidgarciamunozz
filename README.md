@@ -6,7 +6,7 @@
 
 - 📫 How to reach me **garxia0710@gmail.com**
 
-- ⚡ Fun fact **I love legos**
+- ⚡ **Innovating web technology in an outstanding way**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
